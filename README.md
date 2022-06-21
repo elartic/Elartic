@@ -8,4 +8,4 @@
   - 📧 mail@hugotorres.me
   - Elartic | Hugo 💙👑#4493
   - Telegram: @Elartic
-- ⚡ Fun fact: Fedora is my favorite Linux distribution
+- ⚡ Fun fact: I'm good at Mario Kart
