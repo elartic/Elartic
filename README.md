@@ -1,11 +1,11 @@
 <!--
 - 🔭 I’m currently working on
+- 🌱 I’m currently learning
 -->
 
 ### ✨ Hi there ✨
 
-- 📚 I'm a future IT student at URCA
-- 🌱 I’m currently learning Godot
+- 📚 I'm a student at URCA
 - 😄 Pronouns: they/them
 - 📫 How to reach me: 
   - 📧 mail@hugotorres.me
