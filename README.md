@@ -6,7 +6,7 @@
 ### ✨ Hi there ✨
 
 - 📚 I'm a student at URCA
-- 😄 Pronouns: they/them
+- 😄 Pronouns: he/him
 - 📫 How to reach me: 
   - 📧 mail@hugotorres.me
   - Discord : Hugo 👑⭐#4493
