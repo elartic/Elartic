@@ -9,6 +9,6 @@
 - 😄 Pronouns: he/him
 - 📫 How to reach me: 
   - 📧 mail@hugotorres.me
-  - Discord : Hugo 👑⭐#4493
+  - Discord : Elartic 💙#4493
   - Telegram: @Elartic
 - ⚡ Fun fact: I'm good at Mario Kart
